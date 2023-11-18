@@ -3,5 +3,5 @@
 </p>
 
 <p align="center">
-KRUNE
+𝐊𝐑𝐔𝐍𝐄
 </p>
