@@ -32,7 +32,7 @@
   <img src= "https://im4.ezgif.com/tmp/ezgif-4-db0871b67a.gif"
 </p>
   
-![ezgif-4-58d4527e4a](https://github.com/DVRKIN-BLVDE/DVRKIN-BLVDE/assets/151406916/61b9746e-d04e-4679-b4c8-6910daf957ad)
+![ezgif-4-58d4527e4a](https://github.com/DVRKIN-BLVDE/DVRKIN-BLVDE/assets/151406916/61b9746e-d04e-4679-b4c8-6910daf957ad) ![ezgif-4-4963352376](https://github.com/DVRKIN-BLVDE/DVRKIN-BLVDE/assets/151406916/615079a5-44fe-468b-83ee-4dedbe97fe1e) ![ezgif-4-f7070331bd](https://github.com/DVRKIN-BLVDE/DVRKIN-BLVDE/assets/151406916/7d2073f8-1f3f-4f03-8edc-b5b69923ecf5) ![ezgif-4-abfd620d70](https://github.com/DVRKIN-BLVDE/DVRKIN-BLVDE/assets/151406916/47a2662f-98c9-4dd7-866a-35c15049da98) ![ezgif-4-295abbb41d](https://github.com/DVRKIN-BLVDE/DVRKIN-BLVDE/assets/151406916/7907f1a5-8716-4c99-8b82-e0af899a236b) ![ezgif-4-ffe8b3f971](https://github.com/DVRKIN-BLVDE/DVRKIN-BLVDE/assets/151406916/decc5f39-fdc5-4210-85c4-32b02a731d61) 
 
 <p align="center">
   <img src= "https://im3.ezgif.com/tmp/ezgif-3-780c8aaa6b.gif"
